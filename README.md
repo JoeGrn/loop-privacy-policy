@@ -1,1 +1,1 @@
-Privacy policy for the Loop app.</n
+Privacy policy for the Loop app.
